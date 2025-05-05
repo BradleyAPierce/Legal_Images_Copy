@@ -1,1 +1,1 @@
-# Legal_Images_Copy
+# Legal_Vertical_Playbook_Images
